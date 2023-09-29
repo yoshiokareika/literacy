@@ -1,3 +1,3 @@
 # literacy
 
-aiueo
+2342134
